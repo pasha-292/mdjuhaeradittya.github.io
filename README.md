@@ -1,2 +1,2 @@
-# juhaer.github.io
+# mdjuhaeradittya.github.io
 My personal webpage
